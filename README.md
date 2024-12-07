@@ -1,6 +1,7 @@
 Fachinformatiker-Anwendungsentwicklung
+
 Zeitraum
-24.06.2023 - 24.07.2025
+Juli 2023 - Juli 2025
 Abschluss/Zertifikat
 Kammerprüfung
 
