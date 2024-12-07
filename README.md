@@ -1,5 +1,3 @@
-Fachinformatiker-Anwendungsentwicklung
-
 Zeitraum
 
 Juli 2023 - Juli 2025
